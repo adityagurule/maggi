@@ -1,0 +1,1 @@
+maggi, maggi masala, onions, corn, peas, tomatos, capsicum- chopped, water
